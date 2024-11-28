@@ -2,4 +2,4 @@
 - 👀 I am interested in continuing to train in programming
 - 🌱 Currently I am going to follow networks and cybersecurity.
 - 📫 You can contact me through my gmail. Irenen443@gmail.com
-- 😄 Pronouns: Irene o Monse.
+- 😄 Pronouns: Ire
